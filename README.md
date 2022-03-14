@@ -23,7 +23,7 @@ I am interested in changing my profession and that's why I started the Web Devel
 > - Flexibility / Adaptability 
 ​
 
-*After completing the one-year DCI WebDev course, I would like to start working full-time in the IT industry, gain experience and further deepen my knowledge of Web Development and Programming.*
+**After completing the one-year DCI WebDev course, I would like to start working full-time in the IT industry, gain experience and further deepen my knowledge of Web Development and Programming.**
 
 
 ​
